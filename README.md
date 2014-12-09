@@ -1,2 +1,2 @@
-buda
+sushi del buda, Arequipa Peru
 ====

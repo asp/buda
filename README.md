@@ -1,2 +1,2 @@
-sushi del buda, Arequipa Peru
+buda profano || sushi vegano || AQP Peru
 ====
